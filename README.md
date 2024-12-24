@@ -1,5 +1,7 @@
 <p align="center"><a href="https://1mie.shop/kentang" rel="nofollow"><img src="https://i.ibb.co.com/nDy0FHM/klikdisini.gif"></a></p>
+<head>
 <meta name="google-site-verification" content="YSYxHB0pKMO6-DnjNaNc_hQdB7joN56sEr9FsaPHfNE" />
+</head>
 <h1>【Jala Live】 - Situs Nonton Bola Gratis Tanpa Iklan di Jala Live</h1>
 Jala Live adalah platform streaming olahraga, khususnya sepak bola, yang menyediakan layanan nonton pertandingan secara gratis dan tanpa gangguan iklan. Didirikan dengan tujuan memberikan pengalaman menonton terbaik bagi penggemar sepak bola, Jala Live menawarkan akses mudah ke berbagai pertandingan dari liga-liga top dunia hingga pertandingan lokal.
 

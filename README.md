@@ -57,7 +57,7 @@ Bayu, seorang penggemar sepak bola asal Surabaya, berbagi pengalaman menonton me
 - Cek jadwal pertandingan secara berkala agar tidak melewatkan momen penting.
 
 ## Kesimpulan
-Jala Live adalah pilihan terbaik untuk menonton bola secara gratis tanpa iklan. Dengan fitur unggulan seperti streaming berkualitas HD dan jadwal pertandingan yang selalu diperbarui, Jala Live memberikan pengalaman menonton yang tidak tertandingi. Kunjungi [JalaLive](https://www.jalalive.com) sekarang dan nikmati pertandingan favorit Anda!
+Jala Live adalah pilihan terbaik untuk menonton bola secara gratis tanpa iklan. Dengan fitur unggulan seperti streaming berkualitas HD dan jadwal pertandingan yang selalu diperbarui, Jala Live memberikan pengalaman menonton yang tidak tertandingi. Kunjungi [JalaLive](https://github.com/jala-live) sekarang dan nikmati pertandingan favorit Anda!
 
 ---
 
